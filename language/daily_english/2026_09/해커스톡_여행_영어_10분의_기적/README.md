@@ -1,0 +1,374 @@
+# 해커스톡 여행 영어 10분의 기적
+
+## 참고
+- [해커스톡 유튜브](https://www.youtube.com/@hackerstalk/videos)
+- [해커스톡 여행 영어 10분의 기적](https://www.hackers.co.kr/?c=s_eng/eng_contents/eng_daily_speak/daily_speak_book)
+
+## 1. 기내
+- Where is my seat?
+- Where is this seat?
+- Where is seat 23A?
+- Where is the restroom?
+- Is this your seat?
+- This is my seat.
+- Someone is in my seat.
+- Can you change seats with me?
+- Can I change my seat?
+- Where should I put my bag?
+- Korean crew member
+- emergency exit seat
+---
+- Chicken, please.
+- Beef, please.
+- Water, please.
+- Fish, please.
+- Can I have one more?
+- Can I have it later?
+- Can you heat this up?
+- Can you take this away?
+- I requested a special meal.
+- Do you have hot pepper paste?
+- Coke
+---
+- Can I have some wine?
+- Can I have some beer?
+- Can I have some coffee?
+- Can I have some snacks?
+- Can I have some juice?
+- Can I have some ice?
+- Can I have some bread?
+- Do you have any chocolate?
+- Are the snacks free?
+- What snacks do you have?
+- Sprite
+- Cookies
+- Instant noodles
+- peanuts
+- chips
+---
+- Can I get a pen?
+- Can I get a blanket?
+- Can I get a pillow?
+- Can I get slippers?
+- Can I get some napkins?
+- Can I get some earplugs?
+- Can I get a sleeping mask?
+- Do you have a toothbrush?
+- Do you have a toothpaste?
+- Do you have any mouthwash?
+---
+- Can you help me?
+- Can you explain this?
+- Can you check this?
+- Can you give me one more form?
+- What does this mean?
+- I can't read English.
+- I can't write this in English.
+- What is the flight number?
+- Can I have a customs form?
+- Can I have a form in Korean?
+- borrow a pen
+- address
+- arrival card
+---
+- I want this perfume.
+- I want this chocolate.
+- I want this whisky.
+- I want this lipstick.
+- I'll take two.
+- Can I pay with cash?
+- Can I pay with a credit card?
+- What is the exchange rate?
+- Do you accept Korean won?
+- Are they sold out?
+- cosmetics
+- catalogs
+- cigarette
+---
+- How can I use this remote?
+- How can I turn on the light?
+- How can I turn up the volume up?
+- How can I watch movies?
+- It's not working.
+- The screen is frozen.
+- There is no sound.
+- Does it have Korean subtitles?
+- My seatbelt is stuck.
+- How do I recline my seat?
+- tray table
+---
+- Can you stop kicking my seat?
+- Can you turn off the light?
+- Can you keep it down?
+- Can you move your bag?
+- Can you help me with this?
+- Can I get by?
+- Can I recline my seat?
+- Can I borrow a pen?
+- Can I turn on the light?
+- Can you close your window shade?
+- seatback
+---
+
+## 2. 공항
+- Can I have a front row seat?
+- Can I have a window seat?
+- Can I have a different seat?
+- Can I have an aisle seat?
+- Here is my e-ticket.
+- Can we sit together?
+- What is the weight limit?
+- How much is the extra charge?
+- Please add it on my mileage.
+- Can I carry this on board?
+- emergency exit seat
+- passport
+- boarding pass
+---
+- It's a coin.
+- It's my phone.
+- It's a laptop.
+- It's a belt.
+- I'm pregnant.
+- Can I go now?
+- I have a metal pin in my arm.
+- I have nothing in my pockets.
+- Should I take this off?
+- Should I throw this out?
+- wallet
+---
+- Do you have this color?
+- Do you have this lotion?
+- Do you have this model?
+- Do you have a cheaper one?
+- Can I pay with US dollars?
+- Can I use this coupon?
+- Can you wrap this?
+- Can I carry this on board?
+- recommendation
+- sunglasses
+- perfume
+- duty-free shop
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+## 3. 교통수단
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+## 
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+## 
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+## 
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+## 
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+## 
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+
+## 
+-
+--- 
+-
+--- 
+-
+--- 
+-
+--- 
+-
+--- 
+-
+--- 
+-
+--- 
+-
+--- 
+
+
+
+## 관광
+- Three tickets, please
+- Two tickets for adults, please
+- Two adults and one child, please
+- Two tickets for tonight's show, please
+- How much is the ticket?
+- Is it sold out?
+- When does the show start?
+- Can I get front row seats?
+- What is the most popular show?
+- What is the admission fee?
+---
+- I want to book a city tour.
+- I want to book a museum tour.
+- I want to book a bus tour.
+- I want to book a guided tour.
+- How much is this tour?
+- What time does the tour start?
+- What time does the tour end?
+- Is a meal included?
+- What is included in the tour?
+- Can you pick me up at the hotel?
+---
+- Can I cancel the tour?
+- Can I cancel one ticket only?
+- Can I get a full refund?
+- Can I change it to the next one?
+- Is there any extra charge?
+- Is there a cancellation fee?
+- What time is the next show?
+- I booked it yesterday.
+- I booked it online.
+- Here is my receipt.
+---
+- Can I rent an audio guide?
+- Can I rent a bike?
+- Can I rent a stroller?
+- Can I rent a snorkel?
+- How much is the rental fee?
+- How much is it per hour?
+- It's not working.
+- Is there a deposit?
+- Is it free to use?
+- When should I return it?
+---
+- Can you change seats with me?
+- Can you hold my spot?
+- Can you move your bag?
+- Can you keep it down?
+- Can you sit down?
+- Can I sit with my friend?
+- What is this line for?
+- You are blocking my sight.
+- My seat number is 7C.
+- Can I get by?
+---
+- Do you have a city map?
+- Do you have tourist brochures?
+- Do you have brochures in Korean?
+- Do you have a Korean guide?
+- Can I get some tour information?
+- How can I get there?
+- Is there any city tour bus?
+- Can I make a reservation here?
+- What package tours do you have?
+- How much is it?
+---
+- 
+---
+- 
+---
+
+## 8. 거리
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
+- 
+---
